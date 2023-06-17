@@ -1,5 +1,3 @@
-# [Artorias](https://osu.ppy.sh/users/19150343)'s Osu! Skins
-
 # [Zylice Skin Mix 2023](https://drive.google.com/file/d/1rh8WlN8k2DRifWY-eU9TsUIQGOzpv_SG/view) 
 ![](https://i.imgur.com/QTSIcIC.png)
 
